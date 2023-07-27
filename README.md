@@ -8,8 +8,7 @@
 ![Covido (1)](https://github.com/Ranjit-1234/FRT-Project/assets/123186541/58060e31-a597-43bf-8faf-c80761028e6d)
 
 ## News:
-![Covido (4)](https://github.com/Ranjit-1234/FRT-Project/assets/123186541/562300ac-751![Covido (2)](https://github.com/Ranjit-1234/FRT-Project/assets/123186541/64a8b22b-311d-49b9-bcd0-af8dfbed05f0)
-5-4dde-932a-5c4b292edf0b)
+![Covido (2)](https://github.com/Ranjit-1234/FRT-Project/assets/123186541/e6b5a688-ad22-460d-9e5f-3f190a844f15)
 
 ## Action:
 ![Covido (3)](https://github.com/Ranjit-1234/FRT-Project/assets/123186541/3e5daa12-d966-41d8-8a59-601042f4df02)
