@@ -20,7 +20,7 @@
 ![Covido - Microsoft Azure](https://github.com/Ranjit-1234/FRT-Project/assets/123186541/ba651079-7807-4903-b3c6-dab77f053357)
 
 # Youtube Link: 
-https://youtu.be/VhBIf4xQgno
+https://youtu.be/US8IroYpWVk
 
 # Github Link: 
 https://ranjit-1234.github.io/FRT-Project/ 
